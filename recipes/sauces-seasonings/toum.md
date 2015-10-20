@@ -2,7 +2,7 @@ Toum
 ===========
 
 ```
-This is not hard to make, but there are a few things you need to do or it won't work. 
+This is not hard to make but there are a few things you need to do or it won't work. 
 The process that makes the oil "mix" is called emulsification.
 
 Make sure all your work surfaces, blender, and any bowls you use are dry. 
