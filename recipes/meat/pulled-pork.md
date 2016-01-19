@@ -20,4 +20,4 @@ One 14.5-ounce can low-sodium chicken broth (2 cups)
 1. Salt and pepper the pork
 2. Add oil to a large pan and throw in the pork
 3. Fry the pork until brown (about 10 minutes)
-4. Add the rest of the ingredients and cook covered for 2 hours
+4. Add the rest of the ingredients and cook covered for 2 hours   

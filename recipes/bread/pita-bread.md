@@ -2,7 +2,7 @@ Pita Bread
 ============
 
 *makes 8 rounds*
-## What You Need  
+## What You Need
 
 **Ingredients**   
 - 1 cup warm water (not hot or boiling)

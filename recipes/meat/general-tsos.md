@@ -2,7 +2,7 @@ Pulled Pork
 ===========
 
 ## Ingredients
-3 lbs boneless skinless chicken breasts, cut into chunks
+3 lbs boneless skinless chicken breasts, cut into chunks   
 2 cups green onions, sliced
 8 Thai Green and jalapeno peppers
 
