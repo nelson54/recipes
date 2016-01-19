@@ -21,6 +21,7 @@ Pita Bread
 *fresh grated Parmesan and/or Romano, for serving*
 
 **Instructions**
+
 1. In a large soup pot or Dutch oven heat the butter and oil together over medium heat. Add onion, carrots, celery and garlic. Season with salt and pepper and cook until tender over medium-low heat about 10 minutes, stirring often.
 
 2. Sprinkle the flour into the pot and stir into the vegetables, cook 3 minutes, stirring often. Stir in the chicken broth 1 cup at a time, followed by the half & half.
