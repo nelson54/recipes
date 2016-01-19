@@ -1,4 +1,4 @@
-Pita Bread
+Chicken Gnocchi Soup
 ============
 
 ## What You Need
