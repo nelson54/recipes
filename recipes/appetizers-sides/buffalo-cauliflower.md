@@ -5,10 +5,10 @@ Buffalo Cauliflower
 1 head of cauliflower
 
 ### Batter
-1/4 cup soy sauce, low sodium preferred
-1 egg, beaten
-1 cup cornstarch
-1/4 cup of water
+- 1/4 cup soy sauce, low sodium preferred
+- 1 egg, beaten
+- 1 cup cornstarch
+- 1/4 cup of water
 
 ## Instructions
 
