@@ -15,6 +15,8 @@ Taco filling
 **Instructions**
 
 1. Cook and stir ground beef in a large skillet over medium heat with onion until the meat is brown and crumbly, about 10
-minutes; drain excess grease. Stir in chili seasoning mix, ranch-style beans, and diced tomatoes with green chilies. 
-Bring the mixture to a boil, reduce heat to low, and simmer until the ground beef mixture is thick, about 10 minutes; 
-let simmer while you finish remaining steps.
+minutes; drain excess grease. 
+
+2. Stir in chili seasoning mix, ranch-style beans, and diced tomatoes with green chilies. 
+
+3. Bring the mixture to a boil, reduce heat to low, and simmer until the ground beef mixture is thick, about 10 minutes.
