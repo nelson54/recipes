@@ -1,7 +1,7 @@
 Pad Thai
 ============
 
-*Makes 4 servings*
+*Makes 4 servings*   
 ## What You Need  
 
 **Ingredients** 
